@@ -1,2 +1,2 @@
 # cis
-this is my first day - Sanskriti Rathore
+this is my bad day - Sanskriti Rathore
